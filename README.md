@@ -1,6 +1,7 @@
 # 🎉 Link Terbaru MDG99 TerUpdate! 🎉
 
-🔥SPECIAL GAME GACOR & POLA GACOR🔥 
+🔥SPECIAL GAME GACOR & POLA GACOR🔥
+
 UBAH MODAL KECIL MU JADI RATUSAN✨ 
 
 ✅ MULAI PERMAINAN DENGAN BET 200 S/D 1,500 ( DISESUAIKAN DENGAN MODAL ) 
@@ -22,5 +23,7 @@ Link Saluran: https://heylink.me/mdg99aa/
 
 ## ⚡ Tips Akses Link ⚡
 Salin Link dan Langsung Buka via Browser!
+
 Jaringan Macet? Ganti ke Wi-Fi / Tethering!
+
 Layanan MDG99 adalah Prioritas Utama, Terima kasih Banyak atas Dukungan Bosku!
