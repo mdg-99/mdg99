@@ -1,12 +1,12 @@
-🎉 Link Terbaru MDG99 TerUpdate! 🎉
+# 🎉 Link Terbaru MDG99 TerUpdate! 🎉
 🔥 Simpan Sekarang dan Jangan Lewatkan Keseruannya! 🔥
 
-🚀 Cek Link TerGacor 🚀
+## 🚀 Cek Link TerGacor 🚀
 Link Utama: https://mdg99slot.com/
 Link Alternatif: https://rebrand.ly/mdg99cuan
 Link Saluran: https://heylink.me/mdg99aa/
 
-⚡ Tips Akses Link ⚡
+## ⚡ Tips Akses Link ⚡
 Salin Link dan Langsung Buka via Browser!
 Jaringan Macet? Ganti ke Wi-Fi / Tethering!
 Layanan MDG99 adalah Prioritas Utama, Terima kasih Banyak atas Dukungan 
