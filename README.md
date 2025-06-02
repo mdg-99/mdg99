@@ -17,6 +17,8 @@ Semoga Beruntung dan JP Paus Selalu 🥰
 ## 🚀 Cek Link TerGacor 🚀
 Link Utama: https://rebrand.ly/mdg99cuan
 
+Link RTP: https://rtpmdg99-link23.pages.dev/
+
 Link Saluran: https://heylink.me/mdg99aa/
 
 ## ⚡ Tips Akses Link ⚡
